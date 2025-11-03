@@ -52,8 +52,7 @@ This project was brought to life using modern front-end technologies, demonstrat
 
 This project is a testament to the quality and focus on user experience that Nexus Digital delivers. If you're looking to create a powerful digital presence for your business, let's connect.
 
-**Get in Touch:** [ ashrafmorningstar@gmail.com/www.linkedin.com/in/
-ashrafmorningstar ]
+**Get in Touch:** [ ashrafmorningstar@gmail.com/www.linkedin.com/in/ashrafmorningstar ]
 
 ---
 
